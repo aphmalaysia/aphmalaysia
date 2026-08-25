@@ -1,5 +1,7 @@
 dis is a wip sorry check my [strawpage](https://m4laysia.straw.page)
 
+![](https://komarev.com/ghpvc/?username=aphmalaysia&color=green&style=plastic&label=Sightseers)
+
 <!--
 **aphmalaysia/aphmalaysia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
