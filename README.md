@@ -12,7 +12,7 @@ I'm offtab most of the time cus I'm texting my friends that have a life and don'
 
 **SKINS**\
 **Hetalia** area: I'll usually be using my hws Malaysia skin (sometimes satw England too)\
-**Countryhumans** area: I'll mostly use my Malaysia, England, and Sarawak skins
+**Countryhumans** area: I'll mostly use my Malaysia, and England skins
 
 **Other**\
 I HEART ENGLAND. I've been obsessed with England since I first learnt of the countryhumans fandom's existence\
