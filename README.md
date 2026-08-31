@@ -2,7 +2,7 @@
   
 ![my](https://files.catbox.moe/yga40y.gif)\
 ★ - [straw](https://m4laysia.straw.page) | [ata](https://malaysia.atabook.org/) | [listography](https://listography.com/malaysia)\
-![](https://komarev.com/ghpvc/?username=aphmalaysia&color=green&style=plastic&label=Sightseers)\
+![](https://komarev.com/ghpvc/?username=aphmalaysia&color=green&style=plastic&label=Sightseers) ![GitHub followers](https://img.shields.io/github/followers/aphmalaysia?style=plastic&logoColor=green&label=The+sultan's+loyal+warriors&color=green)\
 ![](https://files.catbox.moe/2n9kgv.png)\
 **BYI**\
 Usually in the CH or Hetalia area\
@@ -16,12 +16,12 @@ I'm offtab most of the time cus I'm texting my friends that have a life and don'
 
 **Other**\
 I HEART ENGLAND. I've been obsessed with England since I first learnt of the countryhumans fandom's existence\
-crying emoji crying emoji
-
+crying emoji crying emoji\
 ![](https://files.catbox.moe/jg80nj.webp)\
+هاي سي جبت، *برڤاد-ڤاداله* اڠکاو ممبونوه اورڠ بريبو-ريبو اين، کران اڠکاو ڤون اکن ماتي" - لقسامان هڠ تواه"
+
 ![](https://files.catbox.moe/552ynu.gif) ![](https://files.catbox.moe/h8obxc.png)\
 ![](https://files.catbox.moe/u60hf6.png) ![](https://files.catbox.moe/lspdfl.jpg)
-
 
 </div>
 
