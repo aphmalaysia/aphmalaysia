@@ -1,8 +1,8 @@
 <div align="center">
   
 ![my](https://files.catbox.moe/yga40y.gif)\
-★ - [straw](https://m4laysia.straw.page) | [ata](https://malaysia.atabook.org/) | [listography](https://listography.com/malaysia)\
-![](https://komarev.com/ghpvc/?username=aphmalaysia&color=green&style=plastic&label=Sightseers) ![GitHub followers](https://img.shields.io/github/followers/aphmalaysia?style=plastic&logoColor=green&label=The+sultan's+loyal+warriors&color=green)\
+★ - [![Sign my straw!!!](https://img.shields.io/badge/Strawpage-red?style=plastic&color=red)](https://m4laysia.straw.page) | [![Sign my ata!!!](https://img.shields.io/badge/Atabook-blue?style=plastic)](https://malaysia.atabook.org/) | [![Check it out...](https://img.shields.io/badge/Listography-black?style=plastic)](https://listography.com/malaysia) - ★\
+![Hello there!](https://komarev.com/ghpvc/?username=aphmalaysia&color=green&style=plastic&label=Sightseers) ![Haha, I see you, next generation of Hang Tuah](https://img.shields.io/github/followers/aphmalaysia?style=plastic&logoColor=green&label=The+sultan's+loyal+warriors&color=green)\
 ![](https://files.catbox.moe/2n9kgv.png)\
 **BYI**\
 Usually in the CH or Hetalia area\
