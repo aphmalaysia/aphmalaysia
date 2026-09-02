@@ -9,11 +9,7 @@
 Usually in the CH or Hetalia area\
 I'm really not that talkative around others, so sorry!\
 Whisper me so I can see your message (I'll try to respond ASAP)\
-I'm offtab most of the time cus I'm texting my friends that have a life and don't play Pony Town like I do
-
-**SKINS**\
-**Hetalia** area: I'll usually be using my hws Malaysia skin (sometimes satw England too)\
-**Countryhumans** area: I'll mostly use my Malaysia, and England skins
+I'm offtab most of the time cus I'm texting my friends that have a life and don't play Pony Town like I do\
 
 ![](https://files.catbox.moe/jg80nj.webp)
 
