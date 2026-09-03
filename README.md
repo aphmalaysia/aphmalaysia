@@ -10,7 +10,7 @@
 Usually in the CH or Hetalia area\
 I'm really not that talkative around others, so sorry!\
 Whisper me so I can see your message (I'll try to respond ASAP)\
-I'm offtab most of the time cus I'm texting my friends that have a life and don't play Pony Town like I do\
+I'm offtab most of the time cus I'm texting my friends that have a life and don't play Pony Town like I do
 
 ![](https://files.catbox.moe/jg80nj.webp)
 
