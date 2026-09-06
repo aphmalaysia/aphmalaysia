@@ -12,8 +12,8 @@ I'm really not that talkative around others, so sorry!\
 Whisper me so I can see your message (I'll try to respond ASAP)\
 I'm offtab most of the time cus I'm texting my friends that have a life and don't play Pony Town like I do
 
-![](https://files.catbox.moe/jg80nj.webp)
-
+![](https://files.catbox.moe/jg80nj.webp)\
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yka5tpza2zx7nuylpbowl3q5fe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=f7f706&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yka5tpza2zx7nuylpbowl3q5fe&redirect=true)\
 "هاي سي جبت، *برڤاد-ڤاداله* اڠکاو ممبونوه اورڠ بريبو-ريبو اين، کران اڠکاو ڤون اکن ماتي" - لقسامان هڠ تواه
 
 ![](https://files.catbox.moe/552ynu.gif) ![](https://files.catbox.moe/h8obxc.png)\
